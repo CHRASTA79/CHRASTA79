@@ -1,0 +1,4 @@
+- 👋 Hi, I’m CHRASŤA79
+- 👀 I’m interested in survaiving another new day
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate 
